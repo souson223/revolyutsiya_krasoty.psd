@@ -1,0 +1,1 @@
+# revolyutsiya_krasoty.psd
